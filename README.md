@@ -1,1 +1,1 @@
-# -Arq-Comp-e-SO
+# Arq-Comp-e-SO
